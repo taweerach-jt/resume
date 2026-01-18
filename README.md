@@ -1,2 +1,0 @@
-# resume
-Taweerach Jaitan Resume
